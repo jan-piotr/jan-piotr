@@ -1,1 +1,1 @@
-Przeciwko kultowi obrazów i posągów: ???
+Przeciwko kultowi obrazów i posągów: [https://github.com/jan-piotr/jan-piotr/releases/download/a1/Przeciwko-kultowi-obrazow-i-posagow.pdf](https://github.com/jan-piotr/jan-piotr/releases/download/a1/Przeciwko-kultowi-obrazow-i-posagow.pdf)
